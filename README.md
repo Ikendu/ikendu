@@ -1,1 +1,1 @@
-I am passionate about rendering services in the software wed development industry and leadership
+I am passionate about rendering services in the software development industry and leadership
